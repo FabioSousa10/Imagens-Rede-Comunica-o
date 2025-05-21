@@ -1,0 +1,1 @@
+Imagens para Power BI
